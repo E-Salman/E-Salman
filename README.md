@@ -6,4 +6,4 @@ You can reach me at estebansalman@hotmail.com
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 Hola, soy Esteban Salman
-Estoy interesado en la programacion y actualmente estoy buscando oportunidades laborales en ese campo. Actualmente estudiando Ciencias de la Computacion. Pueden contactarme a estebansalman@hotmail.com
+Estoy interesado en la programacion y actualmente estoy buscando oportunidades laborales en ese campo. Actualmente estudiando Ciencias de la Computacion. Pueden contactarme enviando un email a estebansalman@hotmail.com
